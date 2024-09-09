@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ziyadel-art
 - 👀 I’m interested in Maths , coding, logic word
 - 🌱 I’m currently learning Cs , enjoying maths 
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate with Otis team 
 - 📫 How to reach me discord : ziyadel , Email account : ziyadst204@gmail.com
 - 😄 Pronouns: Ziyad
 - ⚡ Fun fact: Maths olympiad
