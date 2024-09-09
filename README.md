@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ziyadel-art
 - 👀 I’m interested in Maths , coding, logic word
-- 🌱 I’m currently learning Cs , znjoying maths 
+- 🌱 I’m currently learning Cs , enjoying maths 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me discord : ziyadel , Email account : ziyadst204@gmail.com
 - 😄 Pronouns: Ziyad
